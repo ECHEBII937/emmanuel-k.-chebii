@@ -21,4 +21,4 @@ about
 
 ## 📫 Connect with Me  
 📩 Email: **emmanuelchebii937@gmail.com**  
-🔗 [LinkedIn](#) | [Ebrands Website](#) | [Portfolio](#)  
+🔗 [LinkedIn](#) | [Ebrands Website](#) | [Portfolio](https://sites.google.com/view/emmanuelchebii/home)  
